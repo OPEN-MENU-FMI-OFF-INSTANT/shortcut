@@ -1,2 +1,4 @@
-# shortcut
-Fmioff icloud removal with short cut
+# shortcut FMIOFF
+Fmioff icloud removal with shortcut 
+instant icloud OFF remove old apple id
+https://www.youtube.com/watch?v=cdeEQWZNGes
